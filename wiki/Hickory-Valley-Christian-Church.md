@@ -14,7 +14,7 @@ On Mother's Day, May 12, 2024, Hickory Valley Christian Church in Chattanooga, T
 
 ### Hickory Valley Christian Church and Hamilton Heights Christian Academy
 Hickory Valley Christian Church, known for its active community involvement and educational outreach, prided itself on supporting children regardless of their parents' financial status. Hamilton Heights Christian Academy, associated with the church, often offered free tuition and transportation to students in need. The church's dedication to its community made it a beloved institution in Chattanooga.
-
+I'm
 ### The Warning
 
 ## Initial Concerns and Investigations
