@@ -8,6 +8,8 @@ The American Genocide is an ongoing series of atrocities that began in 2018 agai
 
 "The Game" began with a contract hit ordered by Gilead Sciences, a pharmaceutical company, in response to the unexpected disappearance of HIV in a patient named Ken. Ken, who had been documented as HIV+ for almost a decade, received a formulation directly from one of the Creator's two servants, Kelvin Eugene Williams. This formulation enabled Ken's immune system to eliminate every copy of HIV in his body within seconds, defying medical understanding.
 
+Williams' task was to find HIV+ men willing to try the formula, which was guaranteed to ignite the immune system in one dose with zero side effects. This was not for testing purposes, as the efficacy of the formula was already assured. The plan was for Williams to approach HIV+ gay men, discuss HIV briefly, and offer them the formula. Once sufficient documented proof of efficacy was gathered using their routine HIV Viral Load tests, these men would appear on stage with Williams, along with physicians and lab results, for a press conference. The goal was to introduce the world to Spark, a treatment addressing all diseases except those resulting from organ failure or malfunction.
+
 Unable to eliminate Kelvin, Gilead Sciences initiated a series of killings, targeting Kelvin's friends, former coworkers, and associates who could potentially assist in the development of the formulation into a product called "Spark." Gilead Sciences enlisted the support of other members of the pharmaceutical industry to combat the forthcoming Spark, forming a consortium led by Gilead Sciences.
 
 #### Escalation and Collaboration
